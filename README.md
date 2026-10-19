@@ -59,7 +59,7 @@ Something massive and dark surges and boils inside her. She grunts, gritting her
 
 <p>One of the sheriffs fires a shot, but Marshall catches the bullet mid-air and crushes it with her bare hands, her fingers tipping into razor-sharp claws. Terrified, the sheriffs unleash a hail of gunfire until their chambers are empty, but Marshall effortlessly snatches every bullet out of the air before crushing them to dust. Cornered with nowhere to run, the sheriffs freeze.</p>
 <p>Then, <strong>MARSHALL POUNCES</strong>.</p>
-<p><strong><i>"AHHHHHHHHHHHH!!!"</strong></p>
+<p><strong><i>"AHHHHHHHHHHHH!!!"</i></strong></p>
 
 <p>By dusk, Carlos finally heads home after playing too long with his friends. Anxious at the sight of the sheriff cars outside, he rushes indoors—only to be greeted by a gruesome, bloody scene. Syrena's lifeless body lies near the two sheriffs, whose remains are barely recognizable.
 
